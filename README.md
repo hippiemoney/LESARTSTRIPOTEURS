@@ -38,7 +38,7 @@ Pour plus d'informations et pour soutenir ces artistes talentueux:
 
 Contact médias:
 TONY BEARS : ( +44 ) 06 41 36 95 06
-ANTOINDEMOLIERE@GMAIL.COM
+ANTOINEDEMOLIERE@GMAIL.COM
 
 
 Note aux éditeurs:
